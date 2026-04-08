@@ -1,0 +1,1 @@
+# szktky185.github.io
